@@ -21,4 +21,4 @@ She is also one of frew characters who knows Shinichi is Conan.
 ## A Quote
 > Even this loyal mirror won't... reflect your true form.
 
-<img src="http://vignette2.wikia.nocookie.net/detectivconan/images/0/02/Shiho-ai87654.png/revision/latest?cb=20140420142802"\>
+<img src="http://vignette2.wikia.nocookie.net/detectivconan/images/0/02/Shiho-ai87654.png/revision/latest?cb=20140420142802"/>
