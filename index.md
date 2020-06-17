@@ -17,3 +17,6 @@ She is also one of frew characters who knows Shinichi is Conan.
 * cool
 * loner
 * greatest fear: caught by the Black organization
+
+## A Quote
+> Even this loyal mirror won't... Reflect your true form.
